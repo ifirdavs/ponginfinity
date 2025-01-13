@@ -33,8 +33,5 @@ Each match is a race to **3 points**. The first player to reach 3 points wins th
 
 
 <br>
-<br>
-<br>
-
 
 *Firdavsbek Ismoilov*
